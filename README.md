@@ -2,6 +2,10 @@
 ---
 **Favorite stuff**
 ---
-1. Basketball
-2. Video Games
-3. Sisig
+Basketball
+
+Video Games
+
+Sisig
+
+Anime 
