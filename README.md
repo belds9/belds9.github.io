@@ -8,6 +8,7 @@ The only major sport strictly of U.S. origin, basketball was invented by James N
 
 ![alt text](https://m.media-amazon.com/images/I/51MVo59TrwL.jpg)
 
+
 - Badminton
 
 Badminton is a racket sport played by either two opposing players (singles) or two opposing pairs (doubles), who take positions on opposite halves of a rectangular court that is divided by a net. Players score points by striking a shuttlecock with their racket so that it passes over the net and lands in their opponents' half of the court. A rally ends once the shuttlecock has struck the ground, and the shuttlecock may only be struck once by each side before it passes over the net.
